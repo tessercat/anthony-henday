@@ -7,7 +7,8 @@ were read to the Royal Society of Canada
 on May 15, 1907,
 and published in
 _The Transactions of the Royal Society of Canada_, 1908.
-Scanned images are archived online by
+Scanned images of the _Transactions_
+are archived online at
 [Peel](http://peel.library.ualberta.ca/bibliography/35.html).
 
 To produce this text,
